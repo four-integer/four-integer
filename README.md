@@ -1,6 +1,6 @@
   # Hiya !! welcome welcome ,, this is for ponytown!
    (sadly no inages since ,, mobile user!!) 
-   Four / Jay ,, he/she , they/them (prefer prns) , cud+hide/comf is 100% okay with us! Free 2 int!! we dont bite, unless you're being annoingly rude or attacking for no reason then we will bite back. We may not respond fast if were busy , drawing or asleep !! we will be slow at responding!
+   Animatic / Ishmael ,, he/she , they/them (prefer prns) , cud+hide/comf is 100% okay with us! Free 2 int!! we dont bite, unless you're being annoingly rude or attacking for no reason then we will bite back. We may not respond fast if were busy , drawing or asleep !! we will be slow at responding!
 
    Yes.. We roleplay!! sometimes (if we are in a really good mood or bored) ,, we tend to be rather silly and act in character (and out of character ofc!)
         We are an traumagenic DID system ,, 
